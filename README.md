@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🌱 I’m currently learning DeepLearning, 
+- 🌱 I’m currently learning .. idk what i am doing
 - 📫 How to reach me: instagram @jhon-rjf
 - 😄 Pronouns: Yun-Geol Jung
 - ⚡ Fun fact: I'm still learning..
